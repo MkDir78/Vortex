@@ -1,3 +1,8 @@
+Join my discord server: https://dsc.gg/vortex-service
+Support me (SEND LTC ONLY):ltc1qg0aecsfuee2uz4jx8f65grxuy97k9y204fgm5a
+
+
+
 How to Use:
 
 1. Update the Account List:
